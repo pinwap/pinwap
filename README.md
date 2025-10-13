@@ -3,6 +3,7 @@
 # Hey there, I'm Pinwa! 👋
 ⚡currently studying Computer Science at Chulalongkorn University.
 
+interested in _image processing_ 📷 and _quantum AI_ 🖥️
 </div>
 
 ## 📫 Let’s connect!
