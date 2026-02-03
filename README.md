@@ -8,8 +8,7 @@ interested in _image processing_ 📷 and _quantum AI_ 🖥️
 
 ## 📫 Let’s connect!
 Feel free to reach out:
-- 💼 [LinkedIn]
-- ✉️ Email: preyada.techasaratool@gmail.com
+- ✉️ Email: priyada_tech@outlook.com
 - 🌐 Line: Pw14217
 ---
 
